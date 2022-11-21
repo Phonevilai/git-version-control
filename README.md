@@ -1,3 +1,3 @@
 # add readme
 
-add promotion code
+add promotion code | Free shipping
